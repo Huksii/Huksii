@@ -1,3 +1,5 @@
+<img src="https://github.com/Huksii/Huksii/assets/143396671/d6c754bb-8d8d-4e73-971f-59f8c7d29f23" width="400" height="400">
+
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/ylarrey) 
