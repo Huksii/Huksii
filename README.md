@@ -1,5 +1,5 @@
 
-![ZZjXJoq](https://github.com/Huksii/Huksii/assets/143396671/2f1d30eb-7485-456c-ba2b-600719b8cf99){width=50% height=50%}
+![Alt ZZjXJoq]([https://github.com/Huksii/Huksii/assets/143396671/2f1d30eb-7485-456c-ba2b-600719b8cf99](https://i.imgur.com/ZZjXJoq.gif)){width=50% height=50%}
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/ylarrey) 
