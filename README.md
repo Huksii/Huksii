@@ -1,5 +1,5 @@
 ## 🌏 Hello, I'm Yeraly, glad to see you!
-<img src="https://github.com/Huksii/Huksii/assets/143396671/d6c754bb-8d8d-4e73-971f-59f8c7d29f23" width="800" height="400">
+<img src="https://github.com/Huksii/Huksii/assets/143396671/d6c754bb-8d8d-4e73-971f-59f8c7d29f23" width="700" height="250">
 
 
 ## 🌐 Socials:
