@@ -1,4 +1,4 @@
-## 🌏 Hello, I'm Yeraly, glad to see you! Wishing you a Happy New Year!
+## 🌏 Hello, I'm Yeraly, glad to see you!
 <img src="https://github.com/Huksii/Huksii/assets/143396671/afe15941-5dc6-47da-b7c3-80c696020407" width="450" height="300">
 <img src="https://github.com/Huksii/Huksii/assets/143396671/d6c754bb-8d8d-4e73-971f-59f8c7d29f23" width="350" height="300">
 
